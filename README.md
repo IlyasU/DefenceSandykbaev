@@ -1,2 +1,0 @@
-# DefenceSandykbaev
-Tamerlan's project
